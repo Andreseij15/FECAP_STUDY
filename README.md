@@ -1,1 +1,0 @@
-# FECAP_STUDY
